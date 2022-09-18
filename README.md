@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @privateatlantis
+- 👋 Hi, I’m _@5tsuki_
 - 👀 I’m mainly interested in videogames
-- 🌱 I’m currently learning _nothing_
-- 📫 How to reach me me@andrealin.it
+- 🌱 I’m currently learning _nothing_ in particular
+- 📫 Email: me@andrealin.it
